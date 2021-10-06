@@ -1,1 +1,0 @@
-# Daianna-s-Academic-Resume
